@@ -83,5 +83,5 @@ I enjoy building secure, scalable, and cost-effective cloud solutions while cont
 
 📍 Saudi Arabia
 📧 [samaralzubaidi0@gmail.com](mailto:samaralzubaidi0@gmail.com)
-💼 [LinkedIn Profile](https://www.linkedin.com/in/samaralzubaidi)
+💼 [LinkedIn Profile](https://www.linkedin.com/in/samar-alzubaidi/)
 
